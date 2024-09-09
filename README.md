@@ -1,0 +1,2 @@
+# praktikumteknologicloud
+Tugas percepatan study
